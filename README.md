@@ -30,3 +30,13 @@ Jurassic World: Domínio:Quatro anos após a destruição da Ilha Nublar, os din
 Percy Jackson:O adolescente Percy Jackson descobre que os deuses gregos e as criaturas mitológicas são reais. Ele é filho de uma divindade e logo entra para um acampamento de treinamento para semideuses. Enquanto tenta se adaptar a seus novos poderes e amigos, ele descobre que o Raio-Mestre do poderoso Zeus foi roubado e ele é o principal suspeito. Assim, ele tenta solucionar o mistério junto com seus novos colegas, Grover e Annabeth.
 
 ![](https://media1.tenor.com/m/YZgBE-HI3_cAAAAd/logan-lerman-percy-jackson.gif)
+
+O Lar das Crianças Peculiares:Seguindo uma pista deixada por seu avô, um jovem de 16 anos descobre uma ilha misteriosa onde vivem crianças com poderes especiais, mas também inimigos ocultos perigosos.
+
+![](https://media1.tenor.com/m/EwdcuFS8RsAAAAAC/miss-peregrines-home-for-peculiar-children-eva-green.gif)
+
+Jack, o Caçador de Gigantes:Jack é um pobre fazendeiro que abre um portal entre o mundo real e o universo de uma terrível raça de gigantes, desencadeando uma guerra. A situação obriga Jack a lutar para deter os gigantes e salvar a raça humana.
+
+![](https://media1.tenor.com/m/AGHWqhksa18AAAAd/am-i-dead.gif)
+
+
